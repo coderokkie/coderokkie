@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @coderokkie
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning, well i want to learn coding
+- 😄 Pronouns: he/him
